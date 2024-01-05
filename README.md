@@ -1,1 +1,2 @@
-#### 👋, IT'z me ```ABDIZA DEV```!
+ola 👋, 
+#### IT'z me ```ABDIZA DEV```!
