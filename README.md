@@ -1,1 +1,1 @@
-it'z me ```Abdiza Dev``` !
+it'z me ```ABDIZA DEV``` !
