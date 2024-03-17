@@ -1,4 +1,2 @@
 ### zelam 👋, 
-#### It'z me [```  Abdiza Dev  ```](https://abdiza.tech) 
-
-\<Developer /> !
+#### It'z me [```  Abdiza Dev  ```](https://abdiza.tech) - \<Developer /> !
